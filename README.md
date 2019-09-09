@@ -916,3 +916,10 @@ I'm new in your community and want to study back-end)
 ## Hi! My name is Misha.
 I am from Kyiv. And this is my "kotan")
 ![myKotan](https://lh3.googleusercontent.com/p-pktcCqp1vw0XJYb1wvpb2x1JzSI4c0dPeEEzAFQjJVHHyS__qoK9BaUqWNyswgh_LmaZYk5ZVYjRKzBjAgvRkXa3bFczEIjqV6K9n5nBhmc30oS9hv6Lgi_lCj4opAiO_LRPTfKxk=w1033-h775-no)
+
+
+# Hi guys!
+My name is Anastasiia :) it would be great to join you!
+
+![cat](https://i.pinimg.com/originals/b1/44/15/b1441564a8b6e53807e9c7223f9245d1.gif)
+
